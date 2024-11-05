@@ -1,2 +1,1 @@
-# Gangster-Qr-
-SESSION ID  FOR GANGSTER IBBOT 
+***XLICON TEAM***
