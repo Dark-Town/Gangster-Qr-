@@ -1,0 +1,2 @@
+# Gangster-Qr-
+SESSION ID  FOR GANGSTER IBBOT 
